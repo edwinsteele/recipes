@@ -1,9 +1,11 @@
 ---
 ---
-# Time
+# Lentil Stew with Sausage
 
-15m prep time
-1h 15m cooking time
+15m prep time. 1h 15m cooking time
+
+# Credits
+Modified from a Curtis Stone recipe (Coles recipe card)
 
 # Ingredients
 
@@ -26,6 +28,3 @@
 3. Add wine and cook until mixture is reduced by half. Add lentils and stock and cook for another 20 minutes.
 4. In a separate pan, heat 1 tablespoon of oil. Fry sausage until cooked through. Drain oil and put sausage aside.
 5. Once step 3 is done, add sausage to the pot and cook altogether for 15 minutes.
-
-# Credits
-Modified from a Curtis Stone recipe (Coles recipe card)

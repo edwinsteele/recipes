@@ -1,12 +1,14 @@
 ---
 ---
-# The classic charcoal maker's spaghetti, made with eggs and cheese
-
-Many recipes call for cream, but this is not traditional. The creaminess from the eggs and cheese, cooked by the heat of the pasta, is enough. If pancetta is unavailable you can use a good quality, lean bacon. Living in the south I sometimes use country ham pieces. 
+# Spaghetti Alla Carbonara (no cream)
 
 Makes 2 1/2 portions. 15 min prep, 30 min cooking.
 
-# Ingredients 
+# Background
+
+The classic charcoal maker's spaghetti, made with eggs and cheese. Many recipes call for cream, but this is not traditional. The creaminess from the eggs and cheese, cooked by the heat of the pasta, is enough. If pancetta is unavailable you can use a good quality, lean bacon. Living in the south I sometimes use country ham pieces.
+
+# Ingredients
 * 300g spaghetti
 * 30g butter
 * 60ml extra-virgin olive oil
@@ -18,7 +20,7 @@ Makes 2 1/2 portions. 15 min prep, 30 min cooking.
 * 1/4 large onion, finely diced
 * freshly ground, black pepper
 
-# Directions 
+# Directions
 
 1. Put the butter and olive oil in a skillet, over a medium heat. When the butter is melted add the pancetta and onion. Cook until the onion is translucent and the pancetta is well browned, but not crisp.
 2. Add the white wine and continue cooking until it has reduced by about half. Remove from the heat.

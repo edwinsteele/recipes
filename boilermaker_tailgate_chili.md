@@ -1,8 +1,11 @@
 ---
 ---
-Adapted from: [All Recipes](http://allrecipes.com/recipe/78299/boilermaker-tailgate-chili/)
+# Boilermaker Tailgate Chili
 
 Gives 6 portions
+
+# Credits
+Adapted from: [All Recipes](http://allrecipes.com/recipe/78299/boilermaker-tailgate-chili/)
 
 # Ingredients
 

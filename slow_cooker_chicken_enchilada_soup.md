@@ -1,13 +1,19 @@
 ---
 ---
+# Slow Cooker Chicken Enchilada Soup
+
+Yield: 6 servings
+Prep time: 25 minutes. Cook time 4-7hrs
+
+# Credits
+
+http://www.cinnamonspiceandeverythingnice.com/slow-cooker-chicken-enchilada-soup/
+
 # Background
 
 Like a lot of my Tex-mex soups this is delicious as is but made even better with toppings. Garnish with a little shredded cheese, a dollop of sour cream, a slice of avocado and a handful of crushed tortilla chips to not only add interesting textures but take it over the top and make it a lot more fun to eat. Kids will love picking their own toppings.
 
 The lovely thing about this is that your crock pot can do almost all the work. Your chicken will be fork tender after swimming in that spicy broth for hours making it a cinch to shred and toss back into the pot.
-
-Yield: 6 servings
-Prep time: 25 minutes
 
 # Ingredients
 
@@ -39,6 +45,3 @@ Prep time: 25 minutes
 5. Shred the chicken or cut into bite-sized pieces and add back to the pot. Taste and season as needed. Cook 1/2 to 1 more hour on low heat.
 6. Serve garnished with more cheese, sour cream, tortilla chips and avocado
 
-# Credits
-
-http://www.cinnamonspiceandeverythingnice.com/slow-cooker-chicken-enchilada-soup/

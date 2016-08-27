@@ -2,9 +2,11 @@
 ---
 # Amazing Bolognese Sauce (Ragu)
 
-This is a bolognese sauce, aka Ragù alla Bolognesa from Colette Haydon John.
+30-45 min prep, 4 hrs cooking time. Makes about 6 serves
 
-30-45 min prep, 4 hrs cooking time.
+
+# Credits
+This is a bolognese sauce, aka Ragù alla Bolognesa from Colette Haydon John.
 
 ## Ingredients
 
@@ -48,5 +50,5 @@ The people of Bologna traditionally serve their ragù with homemade fresh egg pa
 
 Cook your pasta in plenty of salted water. If you are using dried pasta, ensure you cook it to ‘al dente’ and no further.
 
-Heat a serving dish. Drain the pasta and turn into the dish. Add the sauce and mix well. Serve with freshly grated Parmigiano Reggiano (Parmesan Cheese). Enjoy!
+Heat a serving dish. Drain the pasta and turn into the dish. Add the sauce and mix well. Serve with freshly grated Parmigiano Reggiano (Parmesan Cheese).
 

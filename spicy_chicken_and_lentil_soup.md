@@ -1,6 +1,11 @@
 ---
 ---
-From Brad Maine, the chef (Optiver ANZAC day soup)
+# Spicy Chicken and Lentil Soup
+
+Serves 6-8
+
+# Credits
+Brad Maine, the Optiver chef
 
 # Ingredients
 
@@ -25,7 +30,7 @@ From Brad Maine, the chef (Optiver ANZAC day soup)
 # Instructions
 
 1. Puree onions, carrots, celery, leek, garlic and chilli in a food processor
-2. Poach chicken breast in stock, then shred (or dice). (http://www.thekitchn.com/how-to-poach-chicken-breasts-cooking-lessons-from-the-kitchn-28367)
+2. [Poach chicken breast]((http://www.thekitchn.com/how-to-poach-chicken-breasts-cooking-lessons-from-the-kitchn-28367) in stock, then shred (or dice).
 2. Cook the pureed vegetables in oil until soft
 3. Add spices and cook for a minute
 4. Add lentils and chicken stock and simmer, covered until lentils are soft (20-25 minutes), stirring frequently as lentils will catch
