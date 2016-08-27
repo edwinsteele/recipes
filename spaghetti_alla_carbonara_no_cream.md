@@ -1,3 +1,5 @@
+---
+---
 # The classic charcoal maker's spaghetti, made with eggs and cheese
 
 Many recipes call for cream, but this is not traditional. The creaminess from the eggs and cheese, cooked by the heat of the pasta, is enough. If pancetta is unavailable you can use a good quality, lean bacon. Living in the south I sometimes use country ham pieces. 

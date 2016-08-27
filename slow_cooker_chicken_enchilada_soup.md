@@ -1,3 +1,5 @@
+---
+---
 # Background
 
 Like a lot of my Tex-mex soups this is delicious as is but made even better with toppings. Garnish with a little shredded cheese, a dollop of sour cream, a slice of avocado and a handful of crushed tortilla chips to not only add interesting textures but take it over the top and make it a lot more fun to eat. Kids will love picking their own toppings.

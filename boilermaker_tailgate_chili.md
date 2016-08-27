@@ -1,3 +1,5 @@
+---
+---
 Adapted from: [All Recipes](http://allrecipes.com/recipe/78299/boilermaker-tailgate-chili/)
 
 Gives 6 portions
