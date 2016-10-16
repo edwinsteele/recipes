@@ -22,9 +22,9 @@ Makes 2 1/2 portions. 15 min prep, 30 min cooking.
 
 1. Put the butter and olive oil in a skillet, over a medium heat. When the butter is melted add the pancetta and onion. Cook until the onion is translucent and the pancetta is well browned, but not crisp.
 2. Add the white wine and continue cooking until it has reduced by about half. Remove from the heat.
-3. Bring 4 litres of water to boil in a large pot.
+3. Bring ~2 litres of water to boil in a large pot (enough to cover the pasta).
 4. When the water is boiling add the salt and pasta, stirring until it is submerged.
-5. In a mixing bowl (I usually use a microwavable serving bowl that I'll add the pasta too) lightly beat the eggs with the cheese, parsley, and a generous amount of fresh black pepper.
+5. In a mixing bowl, lightly beat the eggs with the cheese, parsley, and a generous amount of fresh black pepper.
 6. When the pasta is cooked al dente, return the skillet with the pancetta and onion to a high heat.
 7. Drain the pasta and add it to the bowl with the egg and cheese mixture. Toss well, until the pasta is coated with the egg and cheese.
 8. Rewarm onion and pancetta mix. Once warm, drain off oil/butter mixture.
