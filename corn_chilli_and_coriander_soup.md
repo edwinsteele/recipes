@@ -8,6 +8,7 @@ Serves 4. Prep time: 20 minutes. Cooking time 30 minutes.
 * 1 onion, chopped
 * 2 long red chillies, seeded and finely chopped
 * 5 long bacon rashers (or a few more if short cut)
+* 1 teaspoon ground coriander seeds
 * 5 potatoes, peeled and diced
 * 2 x 420g cans sweet corn kernels, drained
 * 1L milk
