@@ -22,7 +22,7 @@ Serves 4. Prep time: 20 minutes. Cooking time 30 minutes.
 2. Stir through bacon and cook for another 4 minutes, until bacon is golden
 3. Mix in potatoes, corn kernels and creamed corn.
 4. Stir in milk and stock (milk is useful for flushing the remaining corn kernels from their tin). Bring to the boil
-4. Reduce heat and simmer until potato is tender.
+4. Reduce heat and simmer for about 20 mins or until potato is tender.
 5. Optionally top with chopped coriander.
 
 
