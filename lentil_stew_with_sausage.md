@@ -11,8 +11,8 @@
 * 1 onion, finely diced
 * 2 cloves garlic, peeled and chopped
 * 1 leek, finely sliced
-* 2 celery sticks, finely sliced
-* 2 small carrots, peeled and finely diced
+* 2 celery sticks, finely sliced (try grating for smoother texture)
+* 2 small carrots, peeled and finely diced (try grating for smoother texture)
 * 2 x 400g peel tomatoes
 * 200ml red wine
 * 400g tin brown lentils drained (or 200g dried, soaked overnight)
