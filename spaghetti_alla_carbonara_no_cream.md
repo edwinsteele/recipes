@@ -25,9 +25,8 @@ Makes 2 1/2 portions. 15 min prep, 30 min cooking.
 3. Bring ~2 litres of water to boil in a large pot (enough to cover the pasta).
 4. When the water is boiling add the salt and pasta, stirring until it is submerged.
 5. In a mixing bowl, lightly beat the eggs with the cheese, parsley, and a generous amount of fresh black pepper.
-6. When the pasta is cooked al dente, return the skillet with the pancetta and onion to a high heat.
-7. Drain the pasta and add it to the bowl with the egg and cheese mixture. Toss well, until the pasta is coated with the egg and cheese.
+6. When the pasta is cooked al dente, drain the pasta and add it to the bowl with the egg and cheese mixture. Toss well, until the pasta is coated with the egg and cheese.
 8. Rewarm onion and pancetta mix. Once warm, drain off oil/butter mixture.
-9. Add the onion and pancetta. Toss again.
+9. Add the onion and pancetta to the bowl with pasta and mix. Toss again.
 10. If necessary, pop the bowl in the microwave for 30 seconds. Don't cook longer, or the pasta will be too dry.
 11. Serve immediately.
