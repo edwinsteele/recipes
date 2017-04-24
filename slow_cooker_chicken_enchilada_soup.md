@@ -22,7 +22,7 @@ Prep time: 25 minutes
 * 250g boneless chicken breasts (no need to cut up)
 * 300g can of corn kernels, drained
 * 1 can black beans, undrained (optional)
-* 1 tablespoon chili powder like McCormick
+* 1 tablespoon chili powder _(chilli flakes are probably ok too)_
 * 1 teaspoon ground cumin
 * 1/2 teaspoon oregano (preferably Mexican), crushed between fingertips
 * 1 1/2 cups shredded sharp cheddar cheese or monterey jack, plus more for serving
@@ -32,8 +32,8 @@ Prep time: 25 minutes
 
 # Instructions
 
-1. In a medium skillet heat the oil over medium heat. Add the onions, red/green chilli, peppers and garlic. Season with salt and pepper. Cook until softened, stirring often, about 10 minutes.
-2. Meanwhile to your crock-pot add the Tomato,  chicken stock, chicken, corn, black beans (if using), chile powder, cumin, oregano and 1 teaspoon coarse salt or 1/2 teaspoon fine and about 1/4 teaspoon black pepper. Mix in the cooked onions, peppers and garlic.
+1. In a medium skillet heat the oil over medium heat. Add the onions, green chilli, capsicum and garlic. Season with salt and pepper. Cook until softened, stirring often, about 10 minutes.
+2. Meanwhile to your crock-pot add the Tomato,  chicken stock, chicken, corn, black beans (if using), chilli powder, cumin, oregano and 1 teaspoon coarse salt or 1/2 teaspoon fine and about 1/4 teaspoon black pepper. Mix in the cooked onions, peppers and garlic.
 3. Cook on high 3 - 4 hour or low 5 - 6. Remove the chicken breasts to a cutting board. 
 4. Stir the cheese into the soup. Add the sour cream to a medium bowl and temper it so it doesn't curdle by mixing in a few ladles of the soup broth then mixing it into the soup.
 5. Shred the chicken or cut into bite-sized pieces and add back to the pot. Taste and season as needed. Cook 1/2 to 1 more hour on low heat.
@@ -41,4 +41,4 @@ Prep time: 25 minutes
 
 # Credits
 
-http://www.cinnamonspiceandeverythingnice.com/slow-cooker-chicken-enchilada-soup/
+[http://www.cinnamonspiceandeverythingnice.com/slow-cooker-chicken-enchilada-soup](http://www.cinnamonspiceandeverythingnice.com/slow-cooker-chicken-enchilada-soup/)
