@@ -22,7 +22,7 @@ Prep time: 25 minutes
 * 250g boneless chicken breasts (no need to cut up)
 * 300g can of corn kernels, drained
 * 1 can black beans, undrained (optional)
-* 1 tablespoon chili powder _(chilli flakes are probably ok too)_
+* 1/2 teaspoon chili flakes (or chilli powder)
 * 1 teaspoon ground cumin
 * 1/2 teaspoon oregano (preferably Mexican), crushed between fingertips
 * 1 1/2 cups shredded sharp cheddar cheese or monterey jack, plus more for serving
