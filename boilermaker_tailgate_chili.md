@@ -24,7 +24,6 @@ Gives 6 portions
 * 1/2 teaspoon dried oregano
 * 1/2 teaspoon ground cumin
 * 1 teaspoon dried basil
-* [optional] 1/2 teaspoon cayenne pepper
 * 1/2 teaspoon paprika
 * 1/2 teaspoon sugar
 * Ground pepper, to taste
@@ -35,6 +34,6 @@ Gives 6 portions
 
 1. Sauté onions, garlic, capsicum, celery and chilli pepper in a bit of oil. Once onion is translucent, drain oil and transfer contents to slow cooker.
 2. In the same pot/pan, Crumble the mince into the hot pan and add bacon and chorizos (no need to add oil, it'll come off the ingredients), and cook until evenly browned. Drain off excess oil and transfer contents to slow cooker.
-3. Into the slow cooker, pour in the pinto/kidney/black beans, spicy chili beans, diced tomatoes and tomato paste. Add the stock powder and water. Season with chili flakes, Worcestershire sauce, oregano, cumin, basil, pepper, cayenne, paprika, and sugar. Stir to blend, then cook on high for 2 hours, then on slow for as long as convenient, stirring occasionally.
+3. Into the slow cooker, pour in the pinto/kidney/black beans, spicy chili beans, diced tomatoes and tomato paste. Add the stock powder and water. Season with chili flakes, Worcestershire sauce, oregano, cumin, basil, pepper, paprika, and sugar. Stir to blend, then cook on high for 2 hours, then on slow for as long as convenient, stirring occasionally.
 4. Remove from heat and serve, or refrigerate, and serve the next day.
 5. To serve, ladle into bowls, and top with corn chips and grated cheese
