@@ -4,18 +4,18 @@
 
 Many recipes call for cream, but this is not traditional. The creaminess from the eggs and cheese, cooked by the heat of the pasta, is enough. If pancetta is unavailable you can use a good quality, lean bacon. Living in the south I sometimes use country ham pieces. 
 
-Makes 2 1/2 portions. 15 min prep, 30 min cooking.
+Makes 5 portions. 15 min prep, 30 min cooking.
 
 # Ingredients 
-* 300g spaghetti
-* 30g butter
-* 60ml extra-virgin olive oil
-* 80g pancetta, cut into thin strips (or 80g short cut bacon)
-* 100ml cup dry white wine
-* 2 eggs
-* 4 Tbs Parmigianno-Reggiano cheese, freshly grated
-* 1 Tbs finely chopped, flat-leaf parsley
-* 1/4 large onion, finely diced
+* 500g spaghetti
+* 50g butter
+* 90ml extra-virgin olive oil
+* 120g pancetta, cut into thin strips (or 80g short cut bacon)
+* 150ml cup dry white wine
+* 3 eggs
+* 6 Tbs Parmigianno-Reggiano cheese, freshly grated
+* 1.5 Tbs finely chopped, flat-leaf parsley
+* 1/2 large onion, finely diced
 * freshly ground, black pepper
 
 # Directions 
