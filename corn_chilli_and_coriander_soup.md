@@ -10,8 +10,8 @@ Serves 4. Prep time: 20 minutes. Cooking time 30 minutes.
 * 5 long bacon rashers (or a few more if short cut)
 * 1 teaspoon ground coriander seeds
 * 5 potatoes, peeled and diced
-* 2 x 420g cans sweet corn kernels, drained
-* 1L milk
+* 2 x 420g cans sweet corn kernels, drained and rinsed well
+* 1L lactose-free milk
 * 250ml chicken stock
 * 125g can creamed corn
 * 1/4 cup chopped coriander leaves (dressing only)
@@ -27,5 +27,7 @@ Serves 4. Prep time: 20 minutes. Cooking time 30 minutes.
 
 
 # Notes
+
+When serving with bread, wholemeal beats multigrain beats white for fodmap.
 
 Original recipe called for 3 chillies and 2 x 310g cans of corn kernels. Using fewer chillies so it's not so hot, and larger cans of corn because they're sold in 420g cans.
