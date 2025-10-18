@@ -1,15 +1,15 @@
 From Donna Hay, Fast, Fresh and Simple.
 
-Serves 4.
+Serves 6.
 
 # Ingredients
 
-* 3 teaspoons olive oil
-* 2 small onion, finely chopped
-* 3 rashers bacon, finely chopped (or 200g bacon pieces)
-* 1.5 teaspoon thyme leaves
-* 200g red lentils
-* 1.6L chicken stock
+* 1 tbs olive oil
+* 3 small onion, finely chopped
+* 300g bacon pieces (or 5 rashers bacon, finely chopped)
+* 2 teaspoons thyme leaves
+* 300g red lentils
+* 2.4L chicken stock
 * sea salt and cracked black pepper
 * finely grated parmesan and sour cream, to serve
 
