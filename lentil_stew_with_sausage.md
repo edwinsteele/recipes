@@ -7,15 +7,13 @@
 
 # Ingredients
 
-* 2 tablespoons olive oil
-* 1 onion, finely diced
-* 2 cloves garlic, peeled and chopped
+* 2 tablespoons Cobham onion & garlic infused 
 * 1 leek, finely sliced
-* 2 celery sticks, finely sliced (try grating for smoother texture)
-* 2 small carrots, peeled and finely diced (try grating for smoother texture)
+* 2 celery sticks, grated (or finely sliced)
+* 2 small carrots, grated (or finely)
 * 2 x 400g peel tomatoes
 * 200ml red wine
-* 400g tin brown lentils drained (or 200g dried, soaked overnight)
+* 400g tin brown lentils drained
 * 700ml chicken stock
 * 4 thick sausages or 6 thin sausages, sliced thinly
 
