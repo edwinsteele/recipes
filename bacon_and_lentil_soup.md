@@ -6,9 +6,9 @@ Serves 6.
 
 * 1 tbs olive oil
 * 3 small onion, finely chopped
-* 300g bacon pieces (or 5 rashers bacon, finely chopped)
+* 250g bacon pieces (or 5 rashers bacon, finely chopped)
 * 2 teaspoons thyme leaves
-* 300g red lentils
+* 375g red lentils
 * 2.4L chicken stock
 * sea salt and cracked black pepper
 * finely grated parmesan and sour cream, to serve
